@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YuliyaNYU
-- 👀 I’m interested in expnading my skills and be able to apply my background in mathematics to engineering related fields.
-- 🌱 I’m currently working on getting my MS in Mathematics
+- 👀 I’m interested in expanding my skills and learn to apply my background in mathematics in engineering related fields.
+- 🌱 I’m currently working on getting my MS in Mathematical Sciences.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I like anime and I learned to crochet this past summer. 
 
